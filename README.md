@@ -1,0 +1,1 @@
+# Validar-versao-uso-WA
